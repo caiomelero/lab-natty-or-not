@@ -15,3 +15,5 @@ Utilizei o "ChatGPT" para a pesquisa. Por outro lado, o "Leonardo AI" foi usado 
 
 ## 🚀 Resultados
 o Conteudo é voltado para pessoas que estão com medo de perder seus empregos para as inteligencias artificiais e resumi e simpiflicar que as IAs não são inimigas mas ferramentas.
+
+https://drive.google.com/file/d/14SK_xHa0OCBd7Kfp8e7vrPImMjp3IcRB/view?usp=sharing
